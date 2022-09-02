@@ -1,2 +1,0 @@
-# Tewari
-pro minecraft gamer
